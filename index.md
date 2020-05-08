@@ -11,7 +11,7 @@ Digital marketer.
 “make a Rainbow together”  
 -NO HATE-
 
-[ja.gravatar.com/leavleaf](https://ja.gravatar.com/leavleaf)
+[gravatar.com/leavleaf](https://gravatar.com/leavleaf)
 
 ・‥…━━━☆
 
@@ -20,4 +20,4 @@ Digital marketer.
 
 ・‥…━━━☆
 
-<iframe src="https://www.openprocessing.org/sketch/890935/embed/" width="400" height="300"></iframe>
+<iframe src="https://www.openprocessing.org/sketch/890935/embed/" width="800" height="600"></iframe>
