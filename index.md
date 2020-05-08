@@ -1,12 +1,12 @@
 # About
-on ٩(ˊᗜˋ*)و
+on ٩(ˊᗜˋ*)و  
 on Lee (Bora Son)
 
-Cosmopolitan.
-Non-binary gender, Pansexsual.
+Cosmopolitan.  
+Non-binary gender, Pansexsual.  
 Digital marketer.
 
-“make a Rainbow together”
+“make a Rainbow together”  
 -NO HATE-
 
 [ja.gravatar.com/leavleaf](https://ja.gravatar.com/leavleaf)
