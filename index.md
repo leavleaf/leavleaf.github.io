@@ -1,3 +1,5 @@
+![プロフィール写真](2016b.jpg)
+
 # About
 on ٩(ˊᗜˋ*)و  
 on Lee (Bora Son)
