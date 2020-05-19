@@ -19,4 +19,4 @@ Digital marketer.
 
 ・‥…━━━☆
 
-<iframe src="https://www.openprocessing.org/sketch/891005/embed/" width="550" height="550"></iframe>
+<iframe src="https://www.openprocessing.org/sketch/891005/embed/" width="530" height="530"></iframe>
