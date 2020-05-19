@@ -15,7 +15,7 @@ Digital marketer.
 ・‥…━━━☆
 
 教育で日本の未来を救おう！  
-[line.me/ti/g2/leS3ARrSeZPvVtQRY3dFDA](https://line.me/ti/g2/leS3ARrSeZPvVtQRY3dFDA)
+[👉LINEオープンチャット](https://line.me/ti/g2/leS3ARrSeZPvVtQRY3dFDA)
 
 ・‥…━━━☆
 
