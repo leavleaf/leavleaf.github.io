@@ -7,7 +7,7 @@ Cosmopolitan.
 Non-binary gender, Pansexsual.  
 Digital marketer.
 
-“make a Rainbow together”  
+'Make Some Noise Together'
 -NO HATE-
 
 [gravatar.com/leavleaf](https://gravatar.com/leavleaf)
