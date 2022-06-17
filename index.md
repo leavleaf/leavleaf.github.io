@@ -1,7 +1,7 @@
 # About
 
 on ٩(ˊᗜˋ*)و  
-on Lee (Bora Son)
+on Lee (Son Bora)
 
 Cosmopolitan.  
 Non-binary gender, Pansexsual.  
