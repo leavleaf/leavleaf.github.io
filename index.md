@@ -5,16 +5,16 @@ on Lee (Son Bora)
 
 Cosmopolitan.  
 Non-binary gender, Pansexsual.  
-Digital marketer.
+Web analyst.
 
 'make some noise together'  
 -NO! HATE-
 
-[gravatar.com/leavleaf](https://gravatar.com/leavleaf)
+[linktr.ee/leavleaf](https://linktr.ee/leavleaf)
 
 ・‥…━━━☆
 
-教育で日本の未来を救おう！  
+自他理解力を育み、差別・不条理から日本を救おう！  
 [👉LINEオープンチャット](https://line.me/ti/g2/leS3ARrSeZPvVtQRY3dFDA)
 
 ・‥…━━━☆
