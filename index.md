@@ -1,13 +1,13 @@
 # About
 
-on ٩(ˊᗜˋ*)و  
+on ٩(ˊᗜˋ*)و 
 on Lee (Son Bora)
 
-Cosmopolitan.  
-Queer / Questioning. 
+Cosmopolitan.
+Queer / Questioning.
 Web analyst.
 
-'make some noise together'  
+'make some noise together'
 -NO! HATE-
 
 [linktr.ee/leavleaf](https://linktr.ee/leavleaf)
