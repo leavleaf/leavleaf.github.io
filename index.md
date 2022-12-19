@@ -4,7 +4,7 @@ on ٩(ˊᗜˋ*)و
 on Lee (Son Bora)
 
 Cosmopolitan.  
-Non-binary gender, Pansexsual.  
+Non-binary gender, Quoiromantic.  
 Web analyst.
 
 'make some noise together'  
