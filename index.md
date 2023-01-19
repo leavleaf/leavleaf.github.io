@@ -4,7 +4,7 @@ on ٩(ˊᗜˋ*)و
 on Lee (Son Bora)
 
 지구별 세계시민  
-*5w4 Sx/So INFJ-A*  
+**5w4 Sx/So INFJ-A**  
 +Queer/Questioning+  
 ウェブ解析士  
 
