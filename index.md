@@ -3,9 +3,10 @@
 on ٩(ˊᗜˋ*)و  
 on Lee (Son Bora)
 
-Cosmopolitan.  
-Queer / Questioning.  
-Web analyst.
+지구별 세계시민
+*5w4 Sx/So INFJ-A*
++Queer/Questioning+  
+ウェブ解析士
 
 'make some noise together'  
 -NO! HATE-
