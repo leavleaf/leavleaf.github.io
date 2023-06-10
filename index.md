@@ -1,7 +1,6 @@
 # About
-
-on ٩(ˊᗜˋ*)و  
-**on Lee (Son Bora)**
+ 
+**öń / Bᴏʀᴀ**
 
 지구별 세계시민  
 "5w4 Sx/So INFJ-A"  
