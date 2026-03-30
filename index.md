@@ -6,7 +6,7 @@ NPO法人のマーケティングマネージャー
 あきらめない集団の一員  
 지구별 세계시민  
 자기긍정 타인긍정  
-5w4, Sx/So, 541, INFJ-A  
+5w4, Sx/So, 514, INFJ-A  
 Non-binary, Pansexual/romantic, Queer  
 
 [linktr.ee/leavleaf](https://linktr.ee/leavleaf)
